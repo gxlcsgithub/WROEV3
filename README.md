@@ -9,3 +9,5 @@ https://wro-association.org
 
 For 2024 season, please visit this link.
 https://wro-association.org/competition/2024-season/
+
+We also thank many support from Taiwan team and Tokyo team (They always change the team name, so I cannot provide the name here.)
